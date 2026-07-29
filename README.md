@@ -1,5 +1,5 @@
 # 💫 About Me:
-Name: Hamza (Shadow)<br>Age: 13<br>Role: SystrixOS Founder<br>
+Name: Hamza (Shadow)<br>Age: just turned 14<br>Role: SystrixOS Founder<br>
 
 
 ## 🌐 Socials:
