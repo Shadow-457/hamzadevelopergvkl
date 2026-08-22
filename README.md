@@ -1,5 +1,5 @@
 # 💫 About Me:
-Name: Hamza (Shadow)<br>Age: just turned 14<br>
+Name: Hamza (Shadow)<br>Age:14<br>
 
 
 ## 🌐 Socials:
